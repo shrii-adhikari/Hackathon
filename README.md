@@ -1,4 +1,4 @@
-<h1>Zeroed in 2050: Mapping the road to net zero to earth?</h1>
+<h1>Zeroed in 2050: Mapping the road to net zero?</h1>
 
 Contributers:
 
